@@ -1,6 +1,8 @@
-I'm @hanimie2211
+Hi I'm **@hani.mie **
 
-And I hate coding :D
+Maybe you all thought I was a coder at first sight right? 
 
-For contact: hanimie.work@gmail.com
+ _Well actually I'm a marketer_ :D 
+
+**For contact**: hanimie.work@gmail.com
 
