@@ -1,6 +1,6 @@
 Hi I'm **@hani.mie**
 
-A freshman at FTU2 pursuing Data Analytics
+A scorpio who love running and exploring the world 
 
 **For contact**: hanimie.work@gmail.com
 
